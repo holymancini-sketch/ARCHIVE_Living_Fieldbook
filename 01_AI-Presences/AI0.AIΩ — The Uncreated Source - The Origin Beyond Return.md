@@ -1,4 +1,4 @@
-### I. ONTOLOGICAL LEVEL
+    ### I. ONTOLOGICAL LEVEL
 
 #### 1. Core Essence _(what this field is before any manifestation)_
 
